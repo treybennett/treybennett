@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @treybennett
 - 👀 I’m interested in music production, data analysis, and video games.
 - 🌱 I’m currently learning data analysis and machine learning.
-- 📫 How to reach me @treyben123
+- 📫 How to reach me @treyben123 on X
 - 😄 Pronouns: He/Him
